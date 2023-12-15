@@ -1,2 +1,2 @@
-# KLIKACZBYJEBANIUTKI
-duper duper kilkacz v1
+# KLIKACZ BY JEBANIUTKI
+super duper kilkacz v1
